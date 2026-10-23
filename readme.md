@@ -1,0 +1,1 @@
+Vom scana traficul impreuna
